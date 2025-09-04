@@ -58,3 +58,15 @@ Scania AB
 Ashok Leyland
 
 Rivian
+
+About Market Research Scope 
+
+<a href="https://marketresearchscope.com/">Market Research Scope</a>(MRS) is a research hub to meet the syndicate, custom and consulting research needs.
+
+Contact Us:
+
+Market Research Scope 
+
+Email: info@marketresearchscope.com
+
+Contact No : 7387448116
